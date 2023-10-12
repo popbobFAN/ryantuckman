@@ -13,6 +13,8 @@
 - 🎶 In my free time, I enjoy playing the piano, saxophone, and upright bass
 - 💞️ I’m looking to collaborate and learn
 - 😀 He/Him pronouns
+- Youtube https://www.youtube.com/@frozie5428/
+- my name is frozie and i LOVE glitching it up with timedeo
 
 Languages and Tools:
 <div>
